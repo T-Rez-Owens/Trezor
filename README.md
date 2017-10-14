@@ -2,4 +2,4 @@
 
 ### About me:
 
-![What brings me the most joy](./assets/images/Me-kids-cousins.png)
+![What brings me the most joy](assets/images/Me-kids-cousins.png)
