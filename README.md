@@ -38,8 +38,8 @@ _a. metal clay art b. c. bounce story ideas off each other/get past writer's blo
 
 ##### What I like to do with Rion Samuel Owens (Rion Striped Semi):
 
-_a. building a semi-truck costume with him b._
+_a. building a semi-truck costume with him b. driving him around in a box as a car c..._
 
 ##### What I like to do with Eli Thomas Owens:
 
-_a. toss him in the air b. listen to him speak gibberish c. drive cars with him. d. go on walks with him. e. send him down slides. f. play with balls (he 'throws' them by dropping them) ..._
+_a. toss him in the air b. listen to him speak gibberish c. drive cars with him. d. go on walks with him. e. send him down slides. f. play with balls (he 'throws' them by dropping them) g. driving him around in a box as a car h..._
