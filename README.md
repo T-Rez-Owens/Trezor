@@ -1,5 +1,9 @@
 ## Welcome to my page!
 
+### For me:
+
+![DailyVideotoWatch](assets/videos/strive-360p.mp4)
+
 ### About me:
 
 ##### What brings me the most joy:
