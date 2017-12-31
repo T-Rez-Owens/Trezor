@@ -3,6 +3,7 @@
 ### For me:
 
 ![DailyVideotoWatch](assets/videos/strive-360p.mp4)
+
 Strive everyday seek to know and follow the spirit of God and submit to Him.
 
 ### About me:
